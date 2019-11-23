@@ -1,2 +1,2 @@
 # ghostcruiser.github.io
-Hotsite.
+Serial novel.
